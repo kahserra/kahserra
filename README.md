@@ -1,4 +1,6 @@
 - 👋 ola. sou a @kahserra
 - 👀 meu email de contato é kayllany.eduardo@escola.pr.gov.br...
 - 🌱 interessada em aprender a programar...
-- 💞️gosto de programações de jogos!
+- 💞️gosto de programações de jogos!-
+- Instagram: @serra_kah 
+- Facebook: Kah Serra 
